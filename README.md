@@ -248,4 +248,6 @@ If you'd like to contribute to this project, please follow these steps:
 
 ## Contact
 
-Provide your contact information or ways for users to reach out with questions, concerns, or feedback.
+feel free to contact via email 
+- prakharsingh1414@gmail.com
+- prashant67690@gmail.com
